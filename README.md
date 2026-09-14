@@ -12,7 +12,7 @@ Many people search for a Hostinger coupon to get an extra discount on their host
 
 Applying the Hostinger 20 off coupon code is quite simple:
 
-1. First, click on [this referral link](https://www.hostinger.com/refer?REFERRALCODE=TUGGOGLEAORP).
+1. First, click on [this referral link](https://www.hostinger.com/in/pricing?REFERRALCODE=GLOBALGROX).
 2. Choose your preferred hosting plan (Shared, Cloud, or VPS Hosting).
 3. The discount is applied automatically at checkout, since this link works through a special Hostinger referral program.
 4. Complete the payment and start building your website.
@@ -46,4 +46,4 @@ Follow these tips to maximize your savings:
 
 If you're looking for a Hostinger 20% off coupon code, now is the perfect time to start your website. Thanks to its reliable services and affordable pricing, Hostinger has become a popular choice among bloggers, businesses, and developers alike.
 
- Click here to claim your discount now: [Hostinger 20% Off Referral Link](https://www.hostinger.com/refer?REFERRALCODE=TUGGOGLEAORP)
+ Click here to claim your discount now: [Hostinger 20% Off Referral Link](https://www.hostinger.com/in/pricing?REFERRALCODE=GLOBALGROX)
